@@ -1,4 +1,4 @@
 # Security Policy
 
 
-contains wheat, egg, milk, soybean, peanut, tree nut(almond)
+contains wheat, egg, milk, soybean, peanut, penis, tree nut(almond)
